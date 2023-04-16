@@ -1,0 +1,4 @@
+- 👋 Salom, Mening ismim @vaisbek
+- 👀 Men, shunchaki GitHub foydalanuvchisiman!
+- 🌱 Men hozirda o'rganyapman...
+- 📫 Men bilan bog'lanish uchun Telegram: @Vaisbek
